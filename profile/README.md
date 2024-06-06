@@ -2,6 +2,10 @@
 
 GRATIS. In aanloop naar het EK van 2024 in Duitsland speelt het Nederlands elftal nog twee oefenwedstrijden. De eerste is vanavond om 20.45 uur tegen Canada. In de Kuip in Rotterdam kan bondscoach Ronald Koeman nog niet beschikken over middenvelders Tijjani Reijnders, Frenkie de Jong en Teun Koopmeiners. Volg de wedstrijd hier in ons liveblog.
 
+<strong> 🔴📺LIVE📲👉 <a href="https://onlinestreamshd.com/friendly/" rel="nofollow"> NEDERLAND - CANADA LIVE KIJKEN </a> </strong>
+
+<strong> 🔴📺LIVE📲👉 <a href="https://onlinestreamshd.com/friendly/" rel="nofollow"> NEDERLAND - CANADA LIVE KIJKEN </a> </strong>
+
 Verbruggen dicht bij de wereldtop?
 Bondscoach Ronald Koeman benoemde Bart Verbruggen woensdag tot eerste EK-keeper van Oranje. De 21-jarige Brabander wordt in Duitsland de jongste Nederlands elftal-doelman ooit op een eindtoernooi.
 
